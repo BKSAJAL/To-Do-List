@@ -57,5 +57,3 @@ I hope it helps make your day just a little bit more organized. 🙌
 
 Happy tasking!  
 — **Sajal**
-````
-
